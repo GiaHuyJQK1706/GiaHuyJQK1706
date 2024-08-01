@@ -1,4 +1,4 @@
-### Hi there, I'm Do Gia Huy 👋
+### Hi there, I'm Do Gia Huy aka Gia-Huy Do👋
 
 
 # Contact me:
